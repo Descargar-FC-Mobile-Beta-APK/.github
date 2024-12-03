@@ -2,7 +2,7 @@
 
 El **FC Mobile Beta APK 24.9.02** es la versión más reciente y emocionante de uno de los simuladores de fútbol más populares del mundo. Diseñado para ofrecer una experiencia avanzada de juego en dispositivos Android y PC, esta beta incluye nuevas características, gráficos mejorados y una jugabilidad más fluida. Vive el fútbol como nunca antes y lleva a tu equipo a la gloria.  
 
-## Descargar FC Mobile Beta APK ahora
+## [Descargar FC Mobile Beta APK ahora](https://spoo.me/X9KfBd)
 
 ![fcm25-limitedbeta-16x9 png adapt crop191x100 628p](https://github.com/user-attachments/assets/8c0f284f-e516-49a1-b625-93d4fa2c8cb2)
 
